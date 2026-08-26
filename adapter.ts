@@ -1,0 +1,1 @@
+//adapter lo haré, pero ahora no llegué:/
